@@ -2,6 +2,6 @@
 
 
 
-# ПАРОЛЬ: MorganDusty
+# ПАРОЛЬ: MorganDusty (не требуется)
 АВТОР В ВК:
 [КЛИКНИ](http://vk.com/dobrov.sergey)
